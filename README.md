@@ -2,7 +2,7 @@
 - 👀 I’m interested in becomeing a software engineer
 - 🌱 I’m currently learning to code
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me message me on instagram at your boydandan
+- 📫 How to reach me message me on instagram at yourboydandan
 - 😄 Pronouns: code
 - ⚡ Fun fact: I love techlogy
 
